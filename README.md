@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Danny24
-- 👀 it's DeepSpaces over folks. 
+- 👀 it's DeepSpaces over here folks. 
